@@ -1,0 +1,2 @@
+# NgabOwi-Vx
+JANGAN DI DENGDOS COK KASIANN 😣😥
